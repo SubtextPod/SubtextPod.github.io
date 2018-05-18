@@ -22,5 +22,5 @@ Today we're discussing a personal story that involves a bit of a punctuation cri
 
 ### Contact
 
-Want to be a guest on the podcast? Email us at: subtextthepodcast@gmail.com or Tweet us @SubtextPod
+Want to be a guest on the podcast? Email us at: [mailto](mailto:subtextthepodcast@gmail.com) or Tweet us [@SubtextPod](https://twitter.com/SubtextPod)
 
