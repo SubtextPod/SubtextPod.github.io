@@ -6,9 +6,9 @@ You can download the Subtext podcast on [iTunes](https://itunes.apple.com/us/pod
 
 Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](http://michelleamcsweeney.com/), each episode focuses on an aspect of communication in a digital dating world. Here, you can find links to the research that backs up our analysis of each conversation.
 
-### Episodes
+## Episodes
 
-[Episode 1: Hypen-gate](https://www.buzzsprout.com/admin/episodes/704925-episode-1-hyphen-gate)
+### [Episode 1: Hypen-gate](https://www.buzzsprout.com/admin/episodes/704925-episode-1-hyphen-gate)
 
 Today we're discussing a personal story that involves a bit of a punctuation crisis. Sarah's roommate Hannah and friend Victoria are here to weigh in—is it weird to use hyphens when you're texting someone new?
 
