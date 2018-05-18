@@ -1,7 +1,3 @@
-title: [Subtext]
-description: [A podcast about texting and dating]
-logo: [https://github.com/SubtextPod/SubtextPod.github.io/blob/master/Subtext%20Logo.png]
-
 ## Welcome to Subtext!
 
 Relationships are confusing, especially when they're digital. What did she mean by putting a period? Why did he wait so long to respond? We're here to talk about your toughest texting questions (and share a few stories of our own). 
