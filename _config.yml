@@ -1,5 +1,5 @@
-
-theme: jekyll-theme-minimal
 title: Subtext
+logo: https://github.com/SubtextPod/SubtextPod.github.io/blob/master/SubtextLogo.png
 description: A podcast about texting and dating
-logo: <img src="https://github.com/SubtextPod/SubtextPod.github.io/blob/master/SubtextLogo.png">
+theme: jekyll-theme-minimal
+
