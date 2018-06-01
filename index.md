@@ -8,16 +8,24 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 
 ## Episodes
 
+### [Episode 2: Heart Emojis on a First Date?](https://subtext.buzzsprout.com/)
+
+What's the deal with heart emojis, anyway? Do they always convey affection? Are some more serious than others? Elizabeth had a Tinder date that was going well...until the heart emojis started coming her way. 
+
+
+[Stark and Crawford, 2015. The Conservatism of Emoji: Work, Affect, and Communication](http://journals.sagepub.com/doi/abs/10.1177/2056305115604853)
+
+[Unicode Consortium, Full Emoji List, v11.0](http://unicode.org/emoji/charts/full-emoji-list.html)
+
+
 ### [Episode 1: Hypen-gate](https://subtext.buzzsprout.com/)
 
 Today we're discussing a personal story that involves a bit of a punctuation crisis. Sarah's roommate Hannah and friend Victoria are here to weigh in—is it weird to use hyphens when you're texting someone new?
 
 
-[Fischer, Garcia 2015. Singles in America. Match.com](https://www.singlesinamerica.com/2015/)
+[Fischer and Garcia, 2015. Singles in America. Match.com](https://www.singlesinamerica.com/2015/)
 
-[2013. Vandergriff, Emotive communication online](https://www.sciencedirect.com/science/article/pii/S037821661300057X)
-
-[McSweeney, 2018. Can I get a comma?](https://www.youtube.com/watch?v=yJN1-1x8neE&t=1389s)
+[Vandergriff, 2013. Emotive communication online](https://www.sciencedirect.com/science/article/pii/S037821661300057X)
 
 
 ### Contact
