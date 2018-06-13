@@ -8,6 +8,19 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 
 ## Episodes
 
+### [Episode 3: I'm 5'8" and other Truths](https://subtext.buzzsprout.com/)
+
+** description ** 
+
+
+[Articulatory Phonetics](https://en.wikipedia.org/wiki/Articulatory_phonetics)
+
+[Read, A. W., 1963. The First Stage in the History of “O. K.” American Speech, 38(1), 5–27.](https://doi.org/10.2307/453580)
+
+[Spradlin, Lauren and Taylor Jones, 2016. A Morphophonological Account of Totes Constructions in English. Presentation at 2016 Annual Meeting of the Linguistic Society of America in Washington DC](https://www.youtube.com/watch?v=3cJoiGQ7yj0)
+
+
+
 ### [Episode 2: Heart Emojis on a First Date?](https://subtext.buzzsprout.com/)
 
 What's the deal with heart emojis, anyway? Do they always convey affection? Are some more serious than others? Elizabeth had a Tinder date that was going well...until the heart emojis started coming her way. 
