@@ -4,7 +4,7 @@ Relationships are confusing, especially when they're digital. What did she mean 
 
 You can download the Subtext podcast on [iTunes](https://itunes.apple.com/us/podcast/subtext/id1386242049?mt=2), [Google Play](https://play.google.com/music/listen?u=0#/ps/Iwbymy4vmrwpbxm3u3odpqr32xq), or [BuzzSprout](https://subtext.buzzsprout.com/). 
 
-Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](http://michelleamcsweeney.com/), each episode focuses on an aspect of communication in a digital dating world. Here, you can find links to the research that backs up our analysis of each conversation.
+Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](http://michelleamcsweeney.com/), each episode focuses on an aspect of communication in a digital dating world. Here, you can find links to the research we mention in each episode.
 
 ## Episodes
 
