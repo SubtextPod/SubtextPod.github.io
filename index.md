@@ -10,7 +10,7 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 
 ### [Episode 3: I'm 5'8" and other Truths](https://subtext.buzzsprout.com/)
 
-**[iTunes]**(https://itunes.apple.com/us/podcast/episode-3-im-58-and-other-truths/id1386242049?i=1000413826645&mt=2)
+**[iTunes](https://itunes.apple.com/us/podcast/episode-3-im-58-and-other-truths/id1386242049?i=1000413826645&mt=2)**
 
 ** description ** 
 
