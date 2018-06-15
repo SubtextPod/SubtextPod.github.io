@@ -1,8 +1,8 @@
 Want to be on the podcast but don't know what to talk about? We are always looking for guests. Some ideas to get started are below. If you are interested in discussing any of these or have another texting question that you would like answered, reach out to [subtextpodcast@gmail.com](subtextpodcast@gmail.com).
 
-### Subtext Topics 
+## Subtext Topics 
 
-The topics here are just guidelines - mostly inspired by conversations or interesting research. Sample question types and a brief description of the research follows - though it is intentionally broad since each situation brings has its own unique factors. 
+Thsee topics are just guidelines - mostly inspired by conversations or interesting research. Sample question types and a brief description of the research follows - though it is intentionally broad since each situation brings has its own unique factors. 
 
 **Punctuation (ellipses, periods)**
 
