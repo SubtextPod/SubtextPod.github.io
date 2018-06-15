@@ -10,12 +10,11 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 
 ### [Episode 3: I'm 5'8" and other Truths](https://subtext.buzzsprout.com/)
 
-**[iTunes](https://itunes.apple.com/us/podcast/episode-3-im-58-and-other-truths/id1386242049?i=1000413826645&mt=2)**
+**[iTunes](https://itunes.apple.com/us/podcast/episode-3-im-58-and-other-truths/id1386242049?i=1000413826645&mt=2)** / **[Google Play](https://play.google.com/music/m/D6i5f6djk7g2h2cwjz4dz2unaiu?t=Episode_3_Im_58_and_Other_Truths-Subtext)**
 
-** description ** 
+Kevin's chat with Leslie got off to a fairly...short start.
 
-
-[Articulatory Phonetics](https://en.wikipedia.org/wiki/Articulatory_phonetics)
+Basics of [Articulatory Phonetics](https://en.wikipedia.org/wiki/Articulatory_phonetics)
 
 [Read, A. W., 1963. The First Stage in the History of “O. K.” American Speech, 38(1), 5–27.](https://doi.org/10.2307/453580)
 
