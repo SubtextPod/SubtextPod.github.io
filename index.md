@@ -26,6 +26,7 @@ Basics of [Articulatory Phonetics](https://en.wikipedia.org/wiki/Articulatory_ph
 
 What's the deal with heart emojis, anyway? Do they always convey affection? Are some more serious than others? Elizabeth had a Tinder date that was going well...until the heart emojis started coming her way. 
 
+**[iTunes](https://itunes.apple.com/us/podcast/episode-2-heart-emojis-on-a-first-date/id1386242049?i=1000412692120&mt=2)** / **[Google Play](https://play.google.com/music/m/Dvqvesqdoselmh2bs2cvscbxvva?t=Episode_2_Heart_Emojis_on_a_First_Date-Subtext)**
 
 [Stark and Crawford, 2015. The Conservatism of Emoji: Work, Affect, and Communication](http://journals.sagepub.com/doi/abs/10.1177/2056305115604853)
 
@@ -37,6 +38,7 @@ What's the deal with heart emojis, anyway? Do they always convey affection? Are 
 
 Today we're discussing a personal story that involves a bit of a punctuation crisis. Sarah's roommate Hannah and friend Victoria are here to weigh in—is it weird to use hyphens when you're texting someone new?
 
+**[iTunes](https://itunes.apple.com/us/podcast/episode-1-hyphen-gate/id1386242049?i=1000411763818&mt=2)** / **[Google Play](https://play.google.com/music/m/Dgnf5bmtygitptpz4wgcggbgo2i?t=Episode_1_Hyphen-gate-Subtext)**
 
 [Fischer and Garcia, 2015. Singles in America. Match.com](https://www.singlesinamerica.com/2015/)
 
