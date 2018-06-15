@@ -1,4 +1,4 @@
-Want to be on the podcast but don't know what to talk about? We are always looking for guests. Some ideas to get started are below. If you are interested in discussing any of these or have another texting question that you would like answered, reach out to [subtextpodcast@gmail.com](subtextpodcast@gmail.com).
+Want to be on the podcast but don't know what to talk about? Some ideas to get started are below. If you are interested in discussing any of these or have another texting question that you would like answered, reach out to [subtextpodcast@gmail.com](subtextpodcast@gmail.com).
 
 ## Subtext Topics 
 
