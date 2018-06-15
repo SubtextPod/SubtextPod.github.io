@@ -2,7 +2,7 @@ Want to be on the podcast but don't know what to talk about? We are always looki
 
 ## Subtext Topics 
 
-Thsee topics are just guidelines - mostly inspired by conversations or interesting research. Sample question types and a brief description of the research follows - though it is intentionally broad since each situation brings has its own unique factors. 
+The topics here are just guidelines - mostly inspired by conversations or interesting research. Sample question types and a brief description of the research follows - though it is intentionally broad since each situation brings has its own unique factors. 
 
 **Punctuation (ellipses, periods)**
 
