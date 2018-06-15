@@ -1,5 +1,5 @@
 title: Subtext
 logo: /img/logo.png
 description: A podcast about texting and dating
-theme: jekyll-theme-minimal
+remote_theme: "mmistakes/minimal-mistakes"
 
