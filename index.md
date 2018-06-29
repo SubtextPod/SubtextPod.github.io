@@ -8,6 +8,20 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 
 ## Episodes
 
+
+### [Episode 4: Is Facebook the new Tinder?](https://subtext.buzzsprout.com/)
+
+It's everyone's favorite subject lately (for better or for worse)...Facebook. What happens when this digital giant takes on dating?
+
+[Tech Crunch: Facebook announces dating feature for meeting non-friends](https://techcrunch.com/2018/05/01/facebook-dating/)
+
+Gatter, K., & Hodkinson, K. (2016). [On the differences between TinderTM versus online dating agencies: Questioning a myth. An exploratory study](https://doi.org/10.1080/23311908.2016.1162414). Cogent Psychology, 3(1), 1162414. 
+
+Granovetter, M. S. (1977). [The Strength of Weak Ties](https://doi.org/10.1016/B978-0-12-442450-0.50025-0). In S. Leinhardt (Ed.), Social Networks (pp. 347–367). Academic Press. 
+
+Smith, A., & Anderson, M. (2016, February 29). [5 facts about online dating](http://www.pewresearch.org/fact-tank/2016/02/29/5-facts-about-online-dating/). Retrieved May 1, 2018.
+
+
 ### [Episode 3: I'm 5'8" and other Truths](https://subtext.buzzsprout.com/)
 
 **[iTunes](https://itunes.apple.com/us/podcast/episode-3-im-58-and-other-truths/id1386242049?i=1000413826645&mt=2)** / **[Google Play](https://play.google.com/music/m/D6i5f6djk7g2h2cwjz4dz2unaiu?t=Episode_3_Im_58_and_Other_Truths-Subtext)**
