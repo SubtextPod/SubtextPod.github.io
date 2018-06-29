@@ -13,7 +13,8 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 
 It's everyone's favorite subject lately (for better or for worse)...Facebook. What happens when this digital giant takes on dating?
 
-[Tech Crunch: Facebook announces dating feature for meeting non-friends](https://techcrunch.com/2018/05/01/facebook-dating/)
+Constine, J. (2018, May 1). [Facebook announces dating feature for meeting non-friends](http://social.techcrunch.com/2018/05/01/facebook-dating/. Retrieved May 1, 2018.
+
 
 Gatter, K., & Hodkinson, K. (2016). [On the differences between TinderTM versus online dating agencies: Questioning a myth. An exploratory study](https://doi.org/10.1080/23311908.2016.1162414). Cogent Psychology, 3(1), 1162414. 
 
