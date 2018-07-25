@@ -8,6 +8,15 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 
 ## Episodes
 
+### [Episode 5: Email's Hidden Message](https://subtext.buzzsprout.com/)
+
+Email: is it only for work or does it have a place in personal relationships? After a guy confronts Taylor over email, she's left wondering if she should really take his accusations seriously. 
+
+[WebMD on Borderline Personality Disorder](https://www.webmd.com/mental-health/ss/slideshow-personality-disorders)
+
+Bjørge, A. K. (2007). [Power distance in English lingua franca email communication](https://onlinelibrary.wiley.com/doi/abs/10.1111/j.1473-4192.2007.00133.x). 
+
+boyd, d. (2015). [It's Complicated](https://yalebooks.yale.edu/book/9780300199000/its-complicated).
 
 ### [Episode 4: Is Facebook the new Tinder?](https://subtext.buzzsprout.com/)
 
