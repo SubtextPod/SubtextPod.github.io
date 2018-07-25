@@ -18,6 +18,8 @@ Bjørge, A. K. (2007). [Power distance in English lingua franca email communicat
 
 boyd, d. (2015). [It's Complicated](https://yalebooks.yale.edu/book/9780300199000/its-complicated).
 
+McClellan, S. (2004). [Guy, Guys, and Neutrality](https://www.ingentaconnect.com/content/cls/pcls/2004/00000040/00000001/art00016). Proceedings from the Annual Meeting of the Chicago Linguistic Society.
+
 ### [Episode 4: Is Facebook the new Tinder?](https://subtext.buzzsprout.com/)
 
 It's everyone's favorite subject lately (for better or for worse)...Facebook. What happens when this digital giant takes on dating?
