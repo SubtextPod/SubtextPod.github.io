@@ -8,8 +8,24 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 
 ## Episodes
 
+### [Episode 7: DTF(orm a Monopoly)](https://subtext.buzzsprout.com/)
+
+[Images from the OKC DTF Campaign](https://theblog.okcupid.com/more-images-from-our-dtf-campaign-revealed-121ad0a153fe)
+
+[Match Group Brands](https://mtch.com/brands/)
+
+
 ### [Episode 6: Just Listen to my Six Pack Abs](https://subtext.buzzsprout.com/)
 
+People keep sending Philip photos out of nowhere—and no, we don't mean photos of food or cats. Why so aggressive? And bonus...is it possible to hack your Tinder algorithm so you get better matches?
+
+
+[Drouin, Michelle, and Landgraff, Carly. Texting, sexting, and attachment in college students’ romantic relationships
+Author links open overlay panel.](https://www.sciencedirect.com/science/article/pii/S0747563211002329)
+
+[Higgs, David. 1999. Queer Sites Gay Urban Histories Since 1600](https://www.taylorfrancis.com/books/9781134724680)
+
+[Blackwell, Courtney, Birnholtz,Jeremy, and Abbott,  Charles. 2014. Seeing and being seen: Co-situation and impression formation using Grindr, a location-aware gay dating app.](http://journals.sagepub.com/doi/abs/10.1177/1461444814521595)
 
 
 ### [Episode 5: Email's Hidden Message](https://subtext.buzzsprout.com/)
