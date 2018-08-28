@@ -8,6 +8,10 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 
 ## Episodes
 
+### [Episode 6: Just Listen to my Six Pack Abs](https://subtext.buzzsprout.com/)
+
+
+
 ### [Episode 5: Email's Hidden Message](https://subtext.buzzsprout.com/)
 
 Email: is it only for work or does it have a place in personal relationships? After a guy confronts Taylor over email, she's left wondering if she should really take his accusations seriously. 
