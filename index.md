@@ -8,6 +8,9 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 
 ## Episodes
 
+### [Episode 8: Haha, So Insecure](https://subtext.buzzsprout.com/)
+
+
 ### [Episode 7: DTF(orm a Monopoly)](https://subtext.buzzsprout.com/)
 
 [Images from the OKC DTF Campaign](https://theblog.okcupid.com/more-images-from-our-dtf-campaign-revealed-121ad0a153fe)
