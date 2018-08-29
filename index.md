@@ -19,13 +19,16 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 
 People keep sending Philip photos out of nowhere—and no, we don't mean photos of food or cats. Why so aggressive? And bonus...is it possible to hack your Tinder algorithm so you get better matches?
 
+[Timmermans, E. and De Caluwé, E. 2017. Development and validation of the Tinder Motives Scale (TMS)](http://www.sciencedirect.com/science/article/pii/S0747563217300286) *this article discusses the Tinder matching algorithm and motivations for use*
 
-[Drouin, Michelle, and Landgraff, Carly. Texting, sexting, and attachment in college students’ romantic relationships
+[Blackwell, C., Birnholtz, J., and Abbott, C. 2014. Seeing and being seen: Co-situation and impression formation using Grindr, a location-aware gay dating app.](http://journals.sagepub.com/doi/abs/10.1177/1461444814521595)
+
+[Drouin, M. and Landgraff, C. Texting, sexting, and attachment in college students’ romantic relationships
 Author links open overlay panel.](https://www.sciencedirect.com/science/article/pii/S0747563211002329)
 
-[Higgs, David. 1999. Queer Sites Gay Urban Histories Since 1600](https://www.taylorfrancis.com/books/9781134724680)
+[Higgs, D. 1999. Queer Sites Gay Urban Histories Since 1600](https://www.taylorfrancis.com/books/9781134724680)
 
-[Blackwell, Courtney, Birnholtz,Jeremy, and Abbott,  Charles. 2014. Seeing and being seen: Co-situation and impression formation using Grindr, a location-aware gay dating app.](http://journals.sagepub.com/doi/abs/10.1177/1461444814521595)
+[Toma, C. L., Hancock, J. T. and Ellison, N. B.. "Separating fact from fiction: An examination of deceptive self-presentation in online dating profiles." ](http://journals.sagepub.com/doi/abs/10.1177/0146167208318067)
 
 
 ### [Episode 5: Email's Hidden Message](https://subtext.buzzsprout.com/)
