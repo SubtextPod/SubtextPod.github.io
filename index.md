@@ -10,6 +10,11 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 
 ### [Episode 8: Haha, So Insecure](https://subtext.buzzsprout.com/)
 
+Jas is just looking for a guy who takes initiative. What's with all this nervous laughter?
+
+[Provine, R. 1999. Laughter Punctuates Speech: Linguistic, Social and Gender Contexts of Laughter](https://onlinelibrary.wiley.com/doi/abs/10.1111/j.1439-0310.1993.tb00478.x)
+
+[McSweeney, M. 2018. ](https://www.readcube.com/articles/10.4324/9781315142340?shared_access_token=-o1LXxar0Kn0ecpDJoqEewLBIUWHziPdsn0vlMIwK3RccoAziWym0WTO3EKYYusIPfGNvH3IFnrVNqqNbRadBJ5WCkorZyZmMqzWtRIALpUVS_X4j7b2-Hb2dZj6cMAK5hcDl3bHS9xbvP6wlMl64FZlq0nUlEc42n6AbTvx07A%3D)
 
 ### [Episode 7: DTF(orm a Monopoly)](https://subtext.buzzsprout.com/)
 
