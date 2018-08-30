@@ -9,22 +9,35 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 ## Episodes
 
 -->
+<!--Katie:
+**[iTunes]()** / **[Google Play]()**
+### [Episode ](https://subtext.buzzsprout.com/) 
+
+-->
+
+-->
 <!--Jas Part 2:
 **[iTunes]()** / **[Google Play]()**
+### [Episode ](https://subtext.buzzsprout.com/) 
 [Rosena, Cheever, Cheyenne, Cummings, and Felta. 2007. The impact of emotionality and self-disclosure on online dating versus traditional dating](https://www.semanticscholar.org/paper/The-impact-of-emotionality-and-self-disclosure-on-Rosen-Cheever/11d2a2968b3e48a4061844539146d3e258be06c6)
+[Larzelere, R.E. and Huston, T.L., 1980. The dyadic trust scale: Toward understanding interpersonal trust in close relationships.](https://www.jstor.org/stable/351903?casa_token=HtMTZzAl224AAAAA:BT5raC-8LyyPoBLKpc4GhN964uyBMv4uyWk8EVxVNmWOTM8PLxG4664J-7pXrI49p7MnGFGYBzQEsG01Nm6TjwfdoEHKpYlz0sfrdRBO_Yv8VUMcJ_EgOA&seq=1#metadata_info_tab_contents)
+[Ellison, N., Heino, R. and Gibbs, J., 2006. Managing impressions online: Self-presentation processes in the online dating environment.](https://academic.oup.com/jcmc/article/11/2/415/4617726)
 -->
 
 
 <!--Nancy: O.K. is definitely not ok
+### [Episode ](https://subtext.buzzsprout.com/) 
 **[iTunes]()** / **[Google Play]()**
 [Read, A.W., 1963. The first stage in the history of "OK".](https://www.jstor.org/stable/453580?casa_token=te9UZDGeRVsAAAAA:E3PoEc1msg1TO91YXvN_WQwjwVDudbGH5-j8kiAtTwHh-Tnlk-JhBNzZLz1CetV-dR0FGzMBbwh5QJL1wT6f5xicU8SXlp_2rGjIyU-CZle4wCQlszq-GQ&seq=1#page_scan_tab_contents)
 [Read, A.W., 1963. The second stage in the history of" OK".](https://www.jstor.org/stable/453285?casa_token=MOxRZ0UwpAEAAAAA:yQe7VhomEmy6wVmru3fH8qafvnSTB2BibP0LhWXSMc6LJPusJgAlHoYX3CR91SJ0tfhURYuujuF1GiAbnZkOGZifKXiAV2eSFb6iZ_pRF7dcsxKXmGysRQ&seq=1#page_scan_tab_contents)
+[Greenspan, S., 2011. 11 Points Guide to Hooking Up: Lists and Advice about First Dates, Hotties, Scandals, Pick-ups, Threesomes, and Booty Calls.](https://books.google.com/books?hl=en&lr=&id=lDEh_KvkIbwC&oi=fnd&pg=PA27&dq=11+Points+Guide+to+Hooking+Up:+Lists+and+Advice+about+First+Dates,+Hotties,+Scandals,+Pick-ups,+Threesomes,+and+Booty+Calls&ots=hUagZIv9oi&sig=J_rWQp1Bg2iokJJ3LT4K1IL9aHs#v=onepage&q=11%20Points%20Guide%20to%20Hooking%20Up%3A%20Lists%20and%20Advice%20about%20First%20Dates%2C%20Hotties%2C%20Scandals%2C%20Pick-ups%2C%20Threesomes%2C%20and%20Booty%20Calls&f=false)
 [Heath, M., 2018. Orthography in social media: Pragmatic and prosodic interpretations of caps lock.](https://journals.linguisticsociety.org/proceedings/index.php/PLSA/article/viewFile/4350/3961)
 [McSweeney, M.A., 2018. The Pragmatics of Text Messaging: Making Meaning in Messages.](https://rdcu.be/4fum)
 -->
 
 
 <!--Natasha: Tinder Traps and a mass date in Union Square
+### [Episode ](https://subtext.buzzsprout.com/) 
 **[iTunes]()** / **[Google Play]()**
 Natasha Aponte set up an elaborate date with dozens -- maybe hundreds -- of men. Were there warnings signs before the date? If so, how could these unsuspecting men have spotted them?
 [Video: Dozens Of Dudes Got Duped In Mass Tinder Date At Union Square](http://gothamist.com/2018/08/20/dudes_duped_in_tinder_scam.php)
@@ -37,14 +50,20 @@ Natasha Aponte set up an elaborate date with dozens -- maybe hundreds -- of men.
 
 <!--Lauren:
 **[iTunes]()** / **[Google Play]()**
+[99% Invisible Episode on the interrobang](https://99percentinvisible.org/episode/interrobang/)
+[Parkes, M.B., 2016. Pause and Effect: an Introduction to the History of Punctuation in the West.](https://www.taylorfrancis.com/books/9781351912471)
+[Bazin, J.P.H.B., 1966. Plumons l'oiseau: divertissement. ](https://books.google.com/books/about/Plumons_l_oiseau.html?id=9mw_fr3kQ14C)
+[Progressive Punctuation](http://progressivepunctuation.com/)
 -->
 
 
-<!--
-### [Episode ](https://subtext.buzzsprout.com/)
-Natalie: How many messages 
+<!--Natalie
+### [Episode ](https://subtext.buzzsprout.com/) 
 **[iTunes]()** / **[Google Play]()**
-[Boilerplate messages are about 75% as effective as customized ones](boilerplate is about 75% as effective as regular https://www.thecut.com/2014/10/put-less-effort-into-your-online-dating-messages.html)
+[Ramirez, A., Sumner, E.M., Fleuriet, C. and Cole, M., 2014. When online dating partners meet offline: The effect of modality switching on relational communication between online daters.](https://academic.oup.com/jcmc/article/20/1/99/4067565)
+[Boilerplate messages are about 75% as effective as customized ones](https://www.thecut.com/2014/10/put-less-effort-into-your-online-dating-messages.html)
+[Rosen, L.D., Cheever, N.A., Cummings, C. and Felt, J., 2008. The impact of emotionality and self-disclosure on online dating versus traditional dating. ](https://www.semanticscholar.org/paper/The-impact-of-emotionality-and-self-disclosure-on-Rosen-Cheever/11d2a2968b3e48a4061844539146d3e258be06c6)
+[Virtual Dating Assistants. How Many Messages Does It Take To Get Her To Meet In Person?](https://www.virtualdatingassistants.com/how-many-messages-does-it-take-to-set-up-a-first-date)
 
 -->
 
