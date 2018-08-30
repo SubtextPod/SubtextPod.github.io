@@ -8,23 +8,26 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 
 ## Episodes
 
-<!--Natalie: How many messages 
-[Boilerplate messages are about 75% as effective as customized ones](boilerplate is about 75% as effective as regular https://www.thecut.com/2014/10/put-less-effort-into-your-online-dating-messages.html)
 -->
+<!--Jas Part 2:
+**[iTunes]()** / **[Google Play]()**
+[Rosena, Cheever, Cheyenne, Cummings, and Felta. 2007. The impact of emotionality and self-disclosure on online dating versus traditional dating](https://www.semanticscholar.org/paper/The-impact-of-emotionality-and-self-disclosure-on-Rosen-Cheever/11d2a2968b3e48a4061844539146d3e258be06c6)
+-->
+
+
 <!--Lauren:
+**[iTunes]()** / **[Google Play]()**
 -->
 <!--Nancy: O.K. is definitely not ok
+**[iTunes]()** / **[Google Play]()**
 [Read, A.W., 1963. The first stage in the history of "OK".](https://www.jstor.org/stable/453580?casa_token=te9UZDGeRVsAAAAA:E3PoEc1msg1TO91YXvN_WQwjwVDudbGH5-j8kiAtTwHh-Tnlk-JhBNzZLz1CetV-dR0FGzMBbwh5QJL1wT6f5xicU8SXlp_2rGjIyU-CZle4wCQlszq-GQ&seq=1#page_scan_tab_contents)
 [Read, A.W., 1963. The second stage in the history of" OK".](https://www.jstor.org/stable/453285?casa_token=MOxRZ0UwpAEAAAAA:yQe7VhomEmy6wVmru3fH8qafvnSTB2BibP0LhWXSMc6LJPusJgAlHoYX3CR91SJ0tfhURYuujuF1GiAbnZkOGZifKXiAV2eSFb6iZ_pRF7dcsxKXmGysRQ&seq=1#page_scan_tab_contents)
 [Heath, M., 2018. Orthography in social media: Pragmatic and prosodic interpretations of caps lock.](https://journals.linguisticsociety.org/proceedings/index.php/PLSA/article/viewFile/4350/3961)
 [McSweeney, M.A., 2018. The Pragmatics of Text Messaging: Making Meaning in Messages.](https://rdcu.be/4fum)
 
--->
-<!--Jas Part 2:
-[Rosena, Cheever, Cheyenne, Cummings, and Felta. 2007. The impact of emotionality and self-disclosure on online dating versus traditional dating](https://www.semanticscholar.org/paper/The-impact-of-emotionality-and-self-disclosure-on-Rosen-Cheever/11d2a2968b3e48a4061844539146d3e258be06c6)
 
--->
 <!--Natasha: Tinder Traps and a mass date in Union Square
+**[iTunes]()** / **[Google Play]()**
 Natasha Aponte set up an elaborate date with dozens -- maybe hundreds -- of men. Were there warnings signs before the date? If so, how could these unsuspecting men have spotted them?
 [Video: Dozens Of Dudes Got Duped In Mass Tinder Date At Union Square](http://gothamist.com/2018/08/20/dudes_duped_in_tinder_scam.php)
 [A woman used Tinder to trick dozens of men into going on the same date](https://www.fastcompany.com/90221456/a-woman-used-tinder-to-trick-dozens-of-men-into-going-on-the-same-date)
@@ -32,8 +35,15 @@ Natasha Aponte set up an elaborate date with dozens -- maybe hundreds -- of men.
 [Boilerplate messages are about 75% as effective as customized ones](boilerplate is about 75% as effective as regular https://www.thecut.com/2014/10/put-less-effort-into-your-online-dating-messages.html)
 [Bruch, E.E. and Newman, M.E.J., 2018. Aspirational pursuit of mates in online dating markets.](http://advances.sciencemag.org/content/4/8/eaap9815)
 -->
+<!--
+### [Episode ](https://subtext.buzzsprout.com/)
+Natalie: How many messages 
+**[iTunes]()** / **[Google Play]()**
+[Boilerplate messages are about 75% as effective as customized ones](boilerplate is about 75% as effective as regular https://www.thecut.com/2014/10/put-less-effort-into-your-online-dating-messages.html)
+-->
 
 ### [Episode 8: Haha, So Insecure](https://subtext.buzzsprout.com/)
+**[iTunes](https://itunes.apple.com/us/podcast/episode-8-haha-so-insecure/id1386242049?i=1000418424151&mt=2)** / **[Google Play](https://play.google.com/music/m/Du3wrc6tznnefseyhrlnuwxm6l4?t=Episode_8_Haha_So_Insecure-Subtext)**
 
 Jas is just looking for a guy who takes initiative. What's with all this nervous laughter?
 
@@ -42,6 +52,7 @@ Jas is just looking for a guy who takes initiative. What's with all this nervous
 [McSweeney, M. 2018. ](https://www.readcube.com/articles/10.4324/9781315142340?shared_access_token=-o1LXxar0Kn0ecpDJoqEewLBIUWHziPdsn0vlMIwK3RccoAziWym0WTO3EKYYusIPfGNvH3IFnrVNqqNbRadBJ5WCkorZyZmMqzWtRIALpUVS_X4j7b2-Hb2dZj6cMAK5hcDl3bHS9xbvP6wlMl64FZlq0nUlEc42n6AbTvx07A%3D)
 
 ### [Episode 7: DTF(orm a Monopoly)](https://subtext.buzzsprout.com/)
+**[iTunes](https://itunes.apple.com/us/podcast/episode-7-dtf-orm-a-monopoly/id1386242049?i=1000417565605&mt=2)** / **[Google Play](https://play.google.com/music/m/Dq7zl6elrtdmzmmlsedttjkdeve?t=Episode_7_DTForm_a_Monopoly-Subtext)**
 
 Anybody seen that colorful new ad campaign for OKCupid? It's about more than it might seem.
 
@@ -51,6 +62,7 @@ Anybody seen that colorful new ad campaign for OKCupid? It's about more than it 
 
 
 ### [Episode 6: Just Listen to my Six Pack Abs](https://subtext.buzzsprout.com/)
+**[iTunes](https://itunes.apple.com/us/podcast/episode-6-just-listen-to-my-six-pack-abs/id1386242049?i=1000416697265&mt=2)** / **[Google Play](https://play.google.com/music/m/Dpafemy5kga2oonbwonl4t4cj4m?t=Episode_6_Just_Listen_To_My_Six-Pack_Abs-Subtext)**
 
 People keep sending Philip photos out of nowhere—and no, we don't mean photos of food or cats. Why so aggressive? And bonus...is it possible to hack your Tinder algorithm so you get better matches?
 
@@ -67,6 +79,7 @@ Author links open overlay panel.](https://www.sciencedirect.com/science/article/
 
 
 ### [Episode 5: Email's Hidden Message](https://subtext.buzzsprout.com/)
+**[iTunes](https://itunes.apple.com/us/podcast/episode-5-emails-hidden-message/id1386242049?i=1000415734744&mt=2)** / **[Google Play](https://play.google.com/music/m/Dmdekigwfkzfjzmwxj3yshoyi2e?t=Episode_5_Emails_Hidden_Message-Subtext)**
 
 Email: is it only for work or does it have a place in personal relationships? After a guy confronts Taylor over email, she's left wondering if she should really take his accusations seriously. 
 
@@ -80,10 +93,11 @@ McLennan, S. (2004). [Guy, Guys, and Neutrality](https://www.ingentaconnect.com/
 
 ### [Episode 4: Is Facebook the new Tinder?](https://subtext.buzzsprout.com/)
 
+**[iTunes](https://itunes.apple.com/us/podcast/episode-4-could-facebook-be-the-new-tinder/id1386242049?i=1000414872058&mt=2)** / **[Google Play](https://play.google.com/music/m/Dxrjxmw7gztjvk2whysmhmcc75e?t=Episode_4_Could_Facebook_be_the_new_Tinder-Subtext)**
+
 It's everyone's favorite subject lately (for better or for worse)...Facebook. What happens when this digital giant takes on dating?
 
 Constine, J. (2018, May 1). [Facebook announces dating feature for meeting non-friends](http://social.techcrunch.com/2018/05/01/facebook-dating/). Retrieved May 1, 2018.
-
 
 Gatter, K., & Hodkinson, K. (2016). [On the differences between TinderTM versus online dating agencies: Questioning a myth. An exploratory study](https://doi.org/10.1080/23311908.2016.1162414). Cogent Psychology, 3(1), 1162414. 
 
