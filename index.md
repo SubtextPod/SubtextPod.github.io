@@ -15,15 +15,13 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 -->
 
 
-<!--Lauren:
-**[iTunes]()** / **[Google Play]()**
--->
 <!--Nancy: O.K. is definitely not ok
 **[iTunes]()** / **[Google Play]()**
 [Read, A.W., 1963. The first stage in the history of "OK".](https://www.jstor.org/stable/453580?casa_token=te9UZDGeRVsAAAAA:E3PoEc1msg1TO91YXvN_WQwjwVDudbGH5-j8kiAtTwHh-Tnlk-JhBNzZLz1CetV-dR0FGzMBbwh5QJL1wT6f5xicU8SXlp_2rGjIyU-CZle4wCQlszq-GQ&seq=1#page_scan_tab_contents)
 [Read, A.W., 1963. The second stage in the history of" OK".](https://www.jstor.org/stable/453285?casa_token=MOxRZ0UwpAEAAAAA:yQe7VhomEmy6wVmru3fH8qafvnSTB2BibP0LhWXSMc6LJPusJgAlHoYX3CR91SJ0tfhURYuujuF1GiAbnZkOGZifKXiAV2eSFb6iZ_pRF7dcsxKXmGysRQ&seq=1#page_scan_tab_contents)
 [Heath, M., 2018. Orthography in social media: Pragmatic and prosodic interpretations of caps lock.](https://journals.linguisticsociety.org/proceedings/index.php/PLSA/article/viewFile/4350/3961)
 [McSweeney, M.A., 2018. The Pragmatics of Text Messaging: Making Meaning in Messages.](https://rdcu.be/4fum)
+-->
 
 
 <!--Natasha: Tinder Traps and a mass date in Union Square
@@ -35,11 +33,19 @@ Natasha Aponte set up an elaborate date with dozens -- maybe hundreds -- of men.
 [Boilerplate messages are about 75% as effective as customized ones](boilerplate is about 75% as effective as regular https://www.thecut.com/2014/10/put-less-effort-into-your-online-dating-messages.html)
 [Bruch, E.E. and Newman, M.E.J., 2018. Aspirational pursuit of mates in online dating markets.](http://advances.sciencemag.org/content/4/8/eaap9815)
 -->
+
+
+<!--Lauren:
+**[iTunes]()** / **[Google Play]()**
+-->
+
+
 <!--
 ### [Episode ](https://subtext.buzzsprout.com/)
 Natalie: How many messages 
 **[iTunes]()** / **[Google Play]()**
 [Boilerplate messages are about 75% as effective as customized ones](boilerplate is about 75% as effective as regular https://www.thecut.com/2014/10/put-less-effort-into-your-online-dating-messages.html)
+
 -->
 
 ### [Episode 8: Haha, So Insecure](https://subtext.buzzsprout.com/)
@@ -49,7 +55,7 @@ Jas is just looking for a guy who takes initiative. What's with all this nervous
 
 [Provine, R. 1999. Laughter Punctuates Speech: Linguistic, Social and Gender Contexts of Laughter](https://onlinelibrary.wiley.com/doi/abs/10.1111/j.1439-0310.1993.tb00478.x)
 
-[McSweeney, M. 2018. ](https://www.readcube.com/articles/10.4324/9781315142340?shared_access_token=-o1LXxar0Kn0ecpDJoqEewLBIUWHziPdsn0vlMIwK3RccoAziWym0WTO3EKYYusIPfGNvH3IFnrVNqqNbRadBJ5WCkorZyZmMqzWtRIALpUVS_X4j7b2-Hb2dZj6cMAK5hcDl3bHS9xbvP6wlMl64FZlq0nUlEc42n6AbTvx07A%3D)
+[McSweeney, M. 2018. The Pragmatics of Text Messaging.](https://www.readcube.com/articles/10.4324/9781315142340?shared_access_token=-o1LXxar0Kn0ecpDJoqEewLBIUWHziPdsn0vlMIwK3RccoAziWym0WTO3EKYYusIPfGNvH3IFnrVNqqNbRadBJ5WCkorZyZmMqzWtRIALpUVS_X4j7b2-Hb2dZj6cMAK5hcDl3bHS9xbvP6wlMl64FZlq0nUlEc42n6AbTvx07A%3D)
 
 ### [Episode 7: DTF(orm a Monopoly)](https://subtext.buzzsprout.com/)
 **[iTunes](https://itunes.apple.com/us/podcast/episode-7-dtf-orm-a-monopoly/id1386242049?i=1000417565605&mt=2)** / **[Google Play](https://play.google.com/music/m/Dq7zl6elrtdmzmmlsedttjkdeve?t=Episode_7_DTForm_a_Monopoly-Subtext)**
