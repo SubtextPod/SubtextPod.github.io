@@ -43,6 +43,8 @@ Jas is just looking for a guy who takes initiative. What's with all this nervous
 
 ### [Episode 7: DTF(orm a Monopoly)](https://subtext.buzzsprout.com/)
 
+Anybody seen that colorful new ad campaign for OKCupid? It's about more than it might seem.
+
 [Images from the OKC DTF Campaign](https://theblog.okcupid.com/more-images-from-our-dtf-campaign-revealed-121ad0a153fe)
 
 [Match Group Brands](https://mtch.com/brands/)
