@@ -8,6 +8,31 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 
 ## Episodes
 
+<!--Natalie: How many messages 
+[Boilerplate messages are about 75% as effective as customized ones](boilerplate is about 75% as effective as regular https://www.thecut.com/2014/10/put-less-effort-into-your-online-dating-messages.html)
+-->
+<!--Lauren:
+-->
+<!--Nancy: O.K. is definitely not ok
+[Read, A.W., 1963. The first stage in the history of "OK".](https://www.jstor.org/stable/453580?casa_token=te9UZDGeRVsAAAAA:E3PoEc1msg1TO91YXvN_WQwjwVDudbGH5-j8kiAtTwHh-Tnlk-JhBNzZLz1CetV-dR0FGzMBbwh5QJL1wT6f5xicU8SXlp_2rGjIyU-CZle4wCQlszq-GQ&seq=1#page_scan_tab_contents)
+[Read, A.W., 1963. The second stage in the history of" OK".](https://www.jstor.org/stable/453285?casa_token=MOxRZ0UwpAEAAAAA:yQe7VhomEmy6wVmru3fH8qafvnSTB2BibP0LhWXSMc6LJPusJgAlHoYX3CR91SJ0tfhURYuujuF1GiAbnZkOGZifKXiAV2eSFb6iZ_pRF7dcsxKXmGysRQ&seq=1#page_scan_tab_contents)
+[Heath, M., 2018. Orthography in social media: Pragmatic and prosodic interpretations of caps lock.](https://journals.linguisticsociety.org/proceedings/index.php/PLSA/article/viewFile/4350/3961)
+[McSweeney, M.A., 2018. The Pragmatics of Text Messaging: Making Meaning in Messages.](https://rdcu.be/4fum)
+
+-->
+<!--Jas Part 2:
+[Rosena, Cheever, Cheyenne, Cummings, and Felta. 2007. The impact of emotionality and self-disclosure on online dating versus traditional dating](https://www.semanticscholar.org/paper/The-impact-of-emotionality-and-self-disclosure-on-Rosen-Cheever/11d2a2968b3e48a4061844539146d3e258be06c6)
+
+-->
+<!--Natasha: Tinder Traps and a mass date in Union Square
+Natasha Aponte set up an elaborate date with dozens -- maybe hundreds -- of men. Were there warnings signs before the date? If so, how could these unsuspecting men have spotted them?
+[Video: Dozens Of Dudes Got Duped In Mass Tinder Date At Union Square](http://gothamist.com/2018/08/20/dudes_duped_in_tinder_scam.php)
+[A woman used Tinder to trick dozens of men into going on the same date](https://www.fastcompany.com/90221456/a-woman-used-tinder-to-trick-dozens-of-men-into-going-on-the-same-date)
+[Beating the Tinder game. 800+ Matches. I’ll probably get banned for this…](https://medium.com/@blakejamieson/beating-the-tinder-game-4f08c9ec0d80)
+[Boilerplate messages are about 75% as effective as customized ones](boilerplate is about 75% as effective as regular https://www.thecut.com/2014/10/put-less-effort-into-your-online-dating-messages.html)
+[Bruch, E.E. and Newman, M.E.J., 2018. Aspirational pursuit of mates in online dating markets.](http://advances.sciencemag.org/content/4/8/eaap9815)
+-->
+
 ### [Episode 8: Haha, So Insecure](https://subtext.buzzsprout.com/)
 
 Jas is just looking for a guy who takes initiative. What's with all this nervous laughter?
