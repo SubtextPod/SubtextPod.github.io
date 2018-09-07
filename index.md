@@ -35,8 +35,8 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 -->
 
 
-Natasha: Wear your finest suit
-### [Episode 9](https://subtext.buzzsprout.com/) 
+
+### [Episode 9: Natasha: Wear your finest suit](https://subtext.buzzsprout.com/) 
 **[iTunes](https://itunes.apple.com/us/podcast/episode-9-wear-your-finest-suit/id1386242049?i=1000419283773&mt=2)** / **[Google Play](https://play.google.com/music/m/Dfsckhsaicu5u7i444547wrr4ui?t=Episode_9_Wear_Your_Finest_Suit-Subtext)**
 
 Natasha Aponte set up an elaborate date with dozens -- maybe hundreds -- of men. Were there warnings signs before the date? If so, how could these unsuspecting men have spotted them?
