@@ -8,16 +8,14 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 
 ## Episodes
 
--->
+
 <!--Katie: Punctuation is a feminist issue
 **[iTunes]()** / **[Google Play]()**
 ### [Episode ](https://subtext.buzzsprout.com/) 
 [Bindley, K. 2018. The tyranny of the exclamation point is causing email and text anxiety: We've become addicted to exclamation points in emails and texts, and going cold turkey freaks people out. Wall Street Journal.](http://search.proquest.com/docview/2087619390/citation/86D90D2F8174D4DPQ/2)
 [Waseleski, C. 2006. Gender and the Use of Exclamation Points in Computer-Mediated Communication: An Analysis of Exclamations Posted to Two Electronic Discussion Lists. Journal of Computer-Mediated Communication](http://onlinelibrary.wiley.com/doi/10.1111/j.1083-6101.2006.00305.x/abstract)
-
 -->
 
--->
 <!--Jas Part 2: Creating a safe space on Tinder
 **[iTunes]()** / **[Google Play]()**
 ### [Episode ](https://subtext.buzzsprout.com/) 
@@ -25,7 +23,6 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 [Larzelere, R.E. and Huston, T.L., 1980. The dyadic trust scale: Toward understanding interpersonal trust in close relationships.](https://www.jstor.org/stable/351903?casa_token=HtMTZzAl224AAAAA:BT5raC-8LyyPoBLKpc4GhN964uyBMv4uyWk8EVxVNmWOTM8PLxG4664J-7pXrI49p7MnGFGYBzQEsG01Nm6TjwfdoEHKpYlz0sfrdRBO_Yv8VUMcJ_EgOA&seq=1#metadata_info_tab_contents)
 [Ellison, N., Heino, R. and Gibbs, J., 2006. Managing impressions online: Self-presentation processes in the online dating environment.](https://academic.oup.com/jcmc/article/11/2/415/4617726)
 -->
-
 
 <!--Nancy: O.K. is definitely not ok
 ### [Episode ](https://subtext.buzzsprout.com/) 
@@ -42,12 +39,15 @@ Natasha: Wear your finest suit
 ### [Episode 9](https://subtext.buzzsprout.com/) 
 **[iTunes](https://itunes.apple.com/us/podcast/episode-9-wear-your-finest-suit/id1386242049?i=1000419283773&mt=2)** / **[Google Play](https://play.google.com/music/m/Dfsckhsaicu5u7i444547wrr4ui?t=Episode_9_Wear_Your_Finest_Suit-Subtext)**
 Natasha Aponte set up an elaborate date with dozens -- maybe hundreds -- of men. Were there warnings signs before the date? If so, how could these unsuspecting men have spotted them?
+
 [Video: Dozens Of Dudes Got Duped In Mass Tinder Date At Union Square](http://gothamist.com/2018/08/20/dudes_duped_in_tinder_scam.php)
 [A woman used Tinder to trick dozens of men into going on the same date](https://www.fastcompany.com/90221456/a-woman-used-tinder-to-trick-dozens-of-men-into-going-on-the-same-date)
+
 [Beating the Tinder game. 800+ Matches. I’ll probably get banned for this…](https://medium.com/@blakejamieson/beating-the-tinder-game-4f08c9ec0d80)
 [Boilerplate messages are about 75% as effective as customized ones](boilerplate is about 75% as effective as regular https://www.thecut.com/2014/10/put-less-effort-into-your-online-dating-messages.html)
+
 [Bruch, E.E. and Newman, M.E.J., 2018. Aspirational pursuit of mates in online dating markets.](http://advances.sciencemag.org/content/4/8/eaap9815)
--->
+
 
 
 <!--Lauren: If the punctuation fits ...!
