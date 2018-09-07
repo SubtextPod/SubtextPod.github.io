@@ -9,14 +9,16 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 ## Episodes
 
 -->
-<!--Katie:
+<!--Katie: Punctuation is a feminist issue
 **[iTunes]()** / **[Google Play]()**
 ### [Episode ](https://subtext.buzzsprout.com/) 
+[Bindley, K. 2018. The tyranny of the exclamation point is causing email and text anxiety: We've become addicted to exclamation points in emails and texts, and going cold turkey freaks people out. Wall Street Journal.](http://search.proquest.com/docview/2087619390/citation/86D90D2F8174D4DPQ/2)
+[Waseleski, C. 2006. Gender and the Use of Exclamation Points in Computer-Mediated Communication: An Analysis of Exclamations Posted to Two Electronic Discussion Lists. Journal of Computer-Mediated Communication](http://onlinelibrary.wiley.com/doi/10.1111/j.1083-6101.2006.00305.x/abstract)
 
 -->
 
 -->
-<!--Jas Part 2:
+<!--Jas Part 2: Creating a safe space on Tinder
 **[iTunes]()** / **[Google Play]()**
 ### [Episode ](https://subtext.buzzsprout.com/) 
 [Rosena, Cheever, Cheyenne, Cummings, and Felta. 2007. The impact of emotionality and self-disclosure on online dating versus traditional dating](https://www.semanticscholar.org/paper/The-impact-of-emotionality-and-self-disclosure-on-Rosen-Cheever/11d2a2968b3e48a4061844539146d3e258be06c6)
@@ -36,7 +38,7 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 -->
 
 
-<!--Natasha: Tinder Traps and a mass date in Union Square
+<!--Natasha: Wear your finest suit
 ### [Episode ](https://subtext.buzzsprout.com/) 
 **[iTunes]()** / **[Google Play]()**
 Natasha Aponte set up an elaborate date with dozens -- maybe hundreds -- of men. Were there warnings signs before the date? If so, how could these unsuspecting men have spotted them?
@@ -48,7 +50,7 @@ Natasha Aponte set up an elaborate date with dozens -- maybe hundreds -- of men.
 -->
 
 
-<!--Lauren:
+<!--Lauren: If the punctuation fits ...!
 **[iTunes]()** / **[Google Play]()**
 [99% Invisible Episode on the interrobang](https://99percentinvisible.org/episode/interrobang/)
 [Parkes, M.B., 2016. Pause and Effect: an Introduction to the History of Punctuation in the West.](https://www.taylorfrancis.com/books/9781351912471)
@@ -57,7 +59,7 @@ Natasha Aponte set up an elaborate date with dozens -- maybe hundreds -- of men.
 -->
 
 
-<!--Natalie
+<!--Natalie: 
 ### [Episode ](https://subtext.buzzsprout.com/) 
 **[iTunes]()** / **[Google Play]()**
 [Ramirez, A., Sumner, E.M., Fleuriet, C. and Cole, M., 2014. When online dating partners meet offline: The effect of modality switching on relational communication between online daters.](https://academic.oup.com/jcmc/article/20/1/99/4067565)
