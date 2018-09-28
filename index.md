@@ -16,11 +16,14 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 [Waseleski, C. 2006. Gender and the Use of Exclamation Points in Computer-Mediated Communication: An Analysis of Exclamations Posted to Two Electronic Discussion Lists. Journal of Computer-Mediated Communication](http://onlinelibrary.wiley.com/doi/10.1111/j.1083-6101.2006.00305.x/abstract)
 -->
 
-Jas Part 2: A Quirky Way to Solve Dating
+### [Episode 10: A Quirky way to Solve Dating](https://www.buzzsprout.com/admin/episodes/807521-episode-10-a-quirky-way-to-solve-dating)
+
 **[iTunes](https://itunes.apple.com/us/podcast/episode-10-a-quirky-way-to-solve-dating/id1386242049?i=1000420191312&mt=2)** / **[Google Play](https://play.google.com/music/m/Dou63yvypiv62czid3tyux3wpb4?t=Episode_10_A_Quirky_Way_to_Solve_Dating-Subtext)**
-### [Episode 10](https://www.buzzsprout.com/admin/episodes/807521-episode-10-a-quirky-way-to-solve-dating) 
+
 [Rosena, Cheever, Cheyenne, Cummings, and Felta. 2007. The impact of emotionality and self-disclosure on online dating versus traditional dating](https://www.semanticscholar.org/paper/The-impact-of-emotionality-and-self-disclosure-on-Rosen-Cheever/11d2a2968b3e48a4061844539146d3e258be06c6)
+
 [Larzelere, R.E. and Huston, T.L., 1980. The dyadic trust scale](https://www.jstor.org/stable/351903?casa_token=HtMTZzAl224AAAAA:BT5raC-8LyyPoBLKpc4GhN964uyBMv4uyWk8EVxVNmWOTM8PLxG4664J-7pXrI49p7MnGFGYBzQEsG01Nm6TjwfdoEHKpYlz0sfrdRBO_Yv8VUMcJ_EgOA&seq=1#metadata_info_tab_contents): Toward understanding interpersonal trust in close relationships.
+
 [Ellison, N., Heino, R. and Gibbs, J., 2006. Managing impressions online:](https://academic.oup.com/jcmc/article/11/2/415/4617726) Self-presentation processes in the online dating environment.
 
 <!--Nancy: O.K. is definitely not ok
