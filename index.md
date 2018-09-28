@@ -17,7 +17,7 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 -->
 
 Jas Part 2: A Quirky Way to Solve Dating
-**[iTunes]()** / **[Google Play]()**
+**[iTunes](https://itunes.apple.com/us/podcast/episode-10-a-quirky-way-to-solve-dating/id1386242049?i=1000420191312&mt=2)** / **[Google Play](https://play.google.com/music/m/Dou63yvypiv62czid3tyux3wpb4?t=Episode_10_A_Quirky_Way_to_Solve_Dating-Subtext)**
 ### [Episode 10](https://www.buzzsprout.com/admin/episodes/807521-episode-10-a-quirky-way-to-solve-dating) 
 [Rosena, Cheever, Cheyenne, Cummings, and Felta. 2007. The impact of emotionality and self-disclosure on online dating versus traditional dating](https://www.semanticscholar.org/paper/The-impact-of-emotionality-and-self-disclosure-on-Rosen-Cheever/11d2a2968b3e48a4061844539146d3e258be06c6)
 [Larzelere, R.E. and Huston, T.L., 1980. The dyadic trust scale](https://www.jstor.org/stable/351903?casa_token=HtMTZzAl224AAAAA:BT5raC-8LyyPoBLKpc4GhN964uyBMv4uyWk8EVxVNmWOTM8PLxG4664J-7pXrI49p7MnGFGYBzQEsG01Nm6TjwfdoEHKpYlz0sfrdRBO_Yv8VUMcJ_EgOA&seq=1#metadata_info_tab_contents): Toward understanding interpersonal trust in close relationships.
