@@ -8,6 +8,17 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 
 ## Episodes
 
+### [Episode 11: 2.57 Texts to a date](https://subtext.buzzsprout.com/) 
+
+**[iTunes](https://itunes.apple.com/us/podcast/episode-11-2-57-texts-to-a-date/id1386242049?i=1000421132517&mt=2)** / **[Google Play](https://play.google.com/music/m/Dodxgrabmeiftbff5znenfnvos4?t=Episode_11_257_Texts_to_a_Date-Subtext)**
+
+[Ramirez, A., Sumner, E.M., Fleuriet, C. and Cole, M., 2014.](https://academic.oup.com/jcmc/article/20/1/99/4067565) When online dating partners meet offline: The effect of modality switching on relational communication between online daters.
+
+[Boilerplate messages](https://www.thecut.com/2014/10/put-less-effort-into-your-online-dating-messages.html) are about 75% as effective as customized ones.
+
+[Rosen, L.D., Cheever, N.A., Cummings, C. and Felt, J., 2008.](https://www.semanticscholar.org/paper/The-impact-of-emotionality-and-self-disclosure-on-Rosen-Cheever/11d2a2968b3e48a4061844539146d3e258be06c6)  The impact of emotionality and self-disclosure on online dating versus traditional dating.
+
+[Virtual Dating Assistants.](https://www.virtualdatingassistants.com/how-many-messages-does-it-take-to-set-up-a-first-date)How Many Messages Does It Take To Get Her To Meet In Person?
 
 <!--Katie: Punctuation is a feminist issue
 **[iTunes]()** / **[Google Play]()**
@@ -64,15 +75,8 @@ Natasha Aponte set up an elaborate date with dozens -- maybe hundreds -- of men.
 -->
 
 
-<!--Natalie: 
-### [Episode ](https://subtext.buzzsprout.com/) 
-**[iTunes]()** / **[Google Play]()**
-[Ramirez, A., Sumner, E.M., Fleuriet, C. and Cole, M., 2014. When online dating partners meet offline: The effect of modality switching on relational communication between online daters.](https://academic.oup.com/jcmc/article/20/1/99/4067565)
-[Boilerplate messages are about 75% as effective as customized ones](https://www.thecut.com/2014/10/put-less-effort-into-your-online-dating-messages.html)
-[Rosen, L.D., Cheever, N.A., Cummings, C. and Felt, J., 2008. The impact of emotionality and self-disclosure on online dating versus traditional dating. ](https://www.semanticscholar.org/paper/The-impact-of-emotionality-and-self-disclosure-on-Rosen-Cheever/11d2a2968b3e48a4061844539146d3e258be06c6)
-[Virtual Dating Assistants. How Many Messages Does It Take To Get Her To Meet In Person?](https://www.virtualdatingassistants.com/how-many-messages-does-it-take-to-set-up-a-first-date)
 
--->
+
 
 ### [Episode 8: Haha, So Insecure](https://subtext.buzzsprout.com/)
 **[iTunes](https://itunes.apple.com/us/podcast/episode-8-haha-so-insecure/id1386242049?i=1000418424151&mt=2)** / **[Google Play](https://play.google.com/music/m/Du3wrc6tznnefseyhrlnuwxm6l4?t=Episode_8_Haha_So_Insecure-Subtext)**
