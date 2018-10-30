@@ -8,6 +8,18 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 
 ## Episodes
 
+### [Episode 12: If the punctuation fits ...!](http.subtext.buzzsprout.com)
+**[iTunes](https://feeds.buzzsprout.com/178306.rss)** / **[Google Play](https://play.google.com/music/m/Dfm4xact5aftnnbae2yrozraqum?t=Episode_12_If_the_Punctuation_Fits-Subtext)**
+
+[99% Invisible Episode on the interrobang](https://99percentinvisible.org/episode/interrobang/)
+
+[Parkes, M.B., 2016. Pause and Effect: an Introduction to the History of Punctuation in the West.](https://www.taylorfrancis.com/books/9781351912471)
+
+[Bazin, J.P.H.B., 1966. Plumons l'oiseau: divertissement. ](https://books.google.com/books/about/Plumons_l_oiseau.html?id=9mw_fr3kQ14C)
+
+[Progressive Punctuation](http://progressivepunctuation.com/)
+
+
 ### [Episode 11: 2.57 Texts to a date](https://subtext.buzzsprout.com/) 
 
 **[iTunes](https://itunes.apple.com/us/podcast/episode-11-2-57-texts-to-a-date/id1386242049?i=1000421132517&mt=2)** / **[Google Play](https://play.google.com/music/m/Dodxgrabmeiftbff5znenfnvos4?t=Episode_11_257_Texts_to_a_Date-Subtext)**
@@ -64,18 +76,6 @@ Natasha Aponte set up an elaborate date with dozens -- maybe hundreds -- of men.
 
 [Bruch, E.E. and Newman, M.E.J., 2018.](http://advances.sciencemag.org/content/4/8/eaap9815)
  Aspirational pursuit of mates in online dating markets.
-
-
-<!--Lauren: If the punctuation fits ...!
-**[iTunes]()** / **[Google Play]()**
-[99% Invisible Episode on the interrobang](https://99percentinvisible.org/episode/interrobang/)
-[Parkes, M.B., 2016. Pause and Effect: an Introduction to the History of Punctuation in the West.](https://www.taylorfrancis.com/books/9781351912471)
-[Bazin, J.P.H.B., 1966. Plumons l'oiseau: divertissement. ](https://books.google.com/books/about/Plumons_l_oiseau.html?id=9mw_fr3kQ14C)
-[Progressive Punctuation](http://progressivepunctuation.com/)
--->
-
-
-
 
 
 ### [Episode 8: Haha, So Insecure](https://subtext.buzzsprout.com/)
