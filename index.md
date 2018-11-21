@@ -8,6 +8,15 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 
 ## Episodes
 
+### [It's not O.K. ](https://subtext.buzzsprout.com/) 
+**[iTunes](https://itunes.apple.com/us/podcast/episode-13-its-not-o-k/id1386242049?i=1000423970853&mt=2)** / **[Google Play](https://play.google.com/music/m/D6iwsgjdxnlksi4gzrbxlwk3twq?t=Episode_13_Its_Not_OK-Subtext)**
+[Read, A.W., 1963.](https://www.jstor.org/stable/453580?casa_token=te9UZDGeRVsAAAAA:E3PoEc1msg1TO91YXvN_WQwjwVDudbGH5-j8kiAtTwHh-Tnlk-JhBNzZLz1CetV-dR0FGzMBbwh5QJL1wT6f5xicU8SXlp_2rGjIyU-CZle4wCQlszq-GQ&seq=1#page_scan_tab_contents) The first stage in the history of "OK".
+[Read, A.W., 1963.](https://www.jstor.org/stable/453285?casa_token=MOxRZ0UwpAEAAAAA:yQe7VhomEmy6wVmru3fH8qafvnSTB2BibP0LhWXSMc6LJPusJgAlHoYX3CR91SJ0tfhURYuujuF1GiAbnZkOGZifKXiAV2eSFb6iZ_pRF7dcsxKXmGysRQ&seq=1#page_scan_tab_contents) The second stage in the history of" OK".
+[Greenspan, S., 2011.](https://books.google.com/books?hl=en&lr=&id=lDEh_KvkIbwC&oi=fnd&pg=PA27&dq=11+Points+Guide+to+Hooking+Up:+Lists+and+Advice+about+First+Dates,+Hotties,+Scandals,+Pick-ups,+Threesomes,+and+Booty+Calls&ots=hUagZIv9oi&sig=J_rWQp1Bg2iokJJ3LT4K1IL9aHs#v=onepage&q=11%20Points%20Guide%20to%20Hooking%20Up%3A%20Lists%20and%20Advice%20about%20First%20Dates%2C%20Hotties%2C%20Scandals%2C%20Pick-ups%2C%20Threesomes%2C%20and%20Booty%20Calls&f=false) 11 Points Guide to Hooking Up: Lists and Advice about First Dates, Hotties, Scandals, Pick-ups, Threesomes, and Booty Calls.
+[Heath, M., 2018.](https://journals.linguisticsociety.org/proceedings/index.php/PLSA/article/viewFile/4350/3961) Orthography in social media: Pragmatic and prosodic interpretations of caps lock.
+[McSweeney, M.A., 2018.](https://rdcu.be/4fum)  The Pragmatics of Text Messaging: Making Meaning in Messages.
+
+
 ### [Episode 12: If the punctuation fits ...!](http.subtext.buzzsprout.com)
 **[iTunes](https://feeds.buzzsprout.com/178306.rss)** / **[Google Play](https://play.google.com/music/m/Dfm4xact5aftnnbae2yrozraqum?t=Episode_12_If_the_Punctuation_Fits-Subtext)**
 
@@ -48,17 +57,6 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 [Larzelere, R.E. and Huston, T.L., 1980. The dyadic trust scale](https://www.jstor.org/stable/351903?casa_token=HtMTZzAl224AAAAA:BT5raC-8LyyPoBLKpc4GhN964uyBMv4uyWk8EVxVNmWOTM8PLxG4664J-7pXrI49p7MnGFGYBzQEsG01Nm6TjwfdoEHKpYlz0sfrdRBO_Yv8VUMcJ_EgOA&seq=1#metadata_info_tab_contents): Toward understanding interpersonal trust in close relationships.
 
 [Ellison, N., Heino, R. and Gibbs, J., 2006. Managing impressions online:](https://academic.oup.com/jcmc/article/11/2/415/4617726) Self-presentation processes in the online dating environment.
-
-<!--Nancy: O.K. is definitely not ok
-### [Episode ](https://subtext.buzzsprout.com/) 
-**[iTunes]()** / **[Google Play]()**
-[Read, A.W., 1963. The first stage in the history of "OK".](https://www.jstor.org/stable/453580?casa_token=te9UZDGeRVsAAAAA:E3PoEc1msg1TO91YXvN_WQwjwVDudbGH5-j8kiAtTwHh-Tnlk-JhBNzZLz1CetV-dR0FGzMBbwh5QJL1wT6f5xicU8SXlp_2rGjIyU-CZle4wCQlszq-GQ&seq=1#page_scan_tab_contents)
-[Read, A.W., 1963. The second stage in the history of" OK".](https://www.jstor.org/stable/453285?casa_token=MOxRZ0UwpAEAAAAA:yQe7VhomEmy6wVmru3fH8qafvnSTB2BibP0LhWXSMc6LJPusJgAlHoYX3CR91SJ0tfhURYuujuF1GiAbnZkOGZifKXiAV2eSFb6iZ_pRF7dcsxKXmGysRQ&seq=1#page_scan_tab_contents)
-[Greenspan, S., 2011. 11 Points Guide to Hooking Up: Lists and Advice about First Dates, Hotties, Scandals, Pick-ups, Threesomes, and Booty Calls.](https://books.google.com/books?hl=en&lr=&id=lDEh_KvkIbwC&oi=fnd&pg=PA27&dq=11+Points+Guide+to+Hooking+Up:+Lists+and+Advice+about+First+Dates,+Hotties,+Scandals,+Pick-ups,+Threesomes,+and+Booty+Calls&ots=hUagZIv9oi&sig=J_rWQp1Bg2iokJJ3LT4K1IL9aHs#v=onepage&q=11%20Points%20Guide%20to%20Hooking%20Up%3A%20Lists%20and%20Advice%20about%20First%20Dates%2C%20Hotties%2C%20Scandals%2C%20Pick-ups%2C%20Threesomes%2C%20and%20Booty%20Calls&f=false)
-[Heath, M., 2018. Orthography in social media: Pragmatic and prosodic interpretations of caps lock.](https://journals.linguisticsociety.org/proceedings/index.php/PLSA/article/viewFile/4350/3961)
-[McSweeney, M.A., 2018. The Pragmatics of Text Messaging: Making Meaning in Messages.](https://rdcu.be/4fum)
--->
-
 
 
 ### [Episode 9: Wear your finest suit](https://subtext.buzzsprout.com/) 
