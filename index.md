@@ -2,22 +2,90 @@
 
 Relationships are confusing, especially when they're digital. What did she mean by putting a period? Why did he wait so long to respond? We're here to talk about your toughest texting questions (and share a few stories of our own). 
 
-You can download the Subtext podcast on [iTunes](https://itunes.apple.com/us/podcast/subtext/id1386242049?mt=2), [Google Play](https://play.google.com/music/listen?u=0#/ps/Iwbymy4vmrwpbxm3u3odpqr32xq), or [BuzzSprout](https://subtext.buzzsprout.com/). 
+You can download the Subtext podcast on [iTunes](https://itunes.apple.com/us/podcast/subtext/id1386242049?mt=2), [Google Play](https://play.google.com/music/listen?u=0#/ps/Iwbymy4vmrwpbxm3u3odpqr32xq), [Spotify](https://open.spotify.com/show/5iKYy1FytjkyHsq9kJl1S2)!!! or [BuzzSprout](https://subtext.buzzsprout.com/). 
 
 Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](http://michelleamcsweeney.com/), each episode focuses on an aspect of communication in a digital dating world. Here, you can find links to the research we mention in each episode.
 
 ## Episodes
 
-### [It's not O.K. ](https://subtext.buzzsprout.com/) 
+### [Episode 17: Best Foot Forward](https://subtext.buzzsprout.com/) 
+
+**[iTunes](https://itunes.apple.com/us/podcast/episode-17-best-foot-forward/id1386242049?i=1000428441933&mt=2)** / **[Google Play]()**
+
+Sydney's dropping her own knowledge on us about the way we present ourselves online.
+
+[Turzio, Alyssa D. 2018](https://repository.upenn.edu/cgi/viewcontent.cgi?article=1188&context=anthro_seniortheses) Constructed Identities and Perpetuated Inequalities in App Dating.
+
+[Ranzini, G., Lutz, C. 2016.](https://journals.sagepub.com/doi/full/10.1177/2050157916664559) Love at first swipe? Explaining Tinder self-presentation and motives .
+
+### [Episode 16: Less Is More](https://subtext.buzzsprout.com/) 
+
+**[iTunes](https://itunes.apple.com/us/podcast/episode-16-less-is-more/id1386242049?i=1000427443826&mt=2)** / **[Google Play]()**
+
+He made things feel comfortable so quickly... What's going on here?
+
+[Gibbs, J. Ellison, N. B., Heino, R. D. 2006](https://journals.sagepub.com/doi/abs/10.1177/0093650205285368) Self-Presentation in Online Personals: The Role of Anticipated Future Interaction, Self-Disclosure, and Perceived Success in Internet Dating
+
+### [Holiday Special: Cuffing Season](https://subtext.buzzsprout.com/) 
+
+**[iTunes](https://itunes.apple.com/us/podcast/holiday-special-cuffing-season/id1386242049?i=1000426620343&mt=2)** / **[Google Play]()**
+
+It's the most wonderful time of the year...or is it?
+
+[Cuffing Season: Defined](https://www.urbandictionary.com/define.php?term=Cuffing%20Season)
+
+
+### [Episode 15: I'm Not (Always) Excited!](https://subtext.buzzsprout.com/) 
+
+**[iTunes](https://itunes.apple.com/us/podcast/episode-15-im-not-always-excited/id1386242049?i=1000425789943&mt=2)** / **[Google Play]()**
+
+Exclamation points? A gender issue? Here for this!
+
+[Waseleski, Carol, 2017.](https://academic.oup.com/jcmc/article/11/4/1012/4617714) Gender and the Use of Exclamation Points in Computer-Mediated Communication: An Analysis of Exclamations Posted to Two Electronic Discussion Lists.
+
+[Vandergriff, Ilona, 2013.](https://www.sciencedirect.com/science/article/abs/pii/S037821661300057X)Emotive communication online: A contextual analysis of computer-mediated communication (CMC) cues.
+
+[Waller, Nikki, 2018.](https://www.wsj.com/articles/shes-not-mad-shes-just-not-using-exclamation-points-1540267501) She’s Not Mad. She’s Just Not Using Exclamation Points.
+
+[Schapitl, Lexi, 2018.](https://www.vox.com/2018/7/11/17548280/exclamation-point-explained-netflix) The exclamation point is a loaded punctuation mark! Here’s why.
+
+### [Episode 14: A Texting Scorecard??](https://subtext.buzzsprout.com/) 
+**[iTunes](https://itunes.apple.com/us/podcast/episode-14-a-texting-scorecard/id1386242049?i=1000424862551&mt=2)** / **[Google Play]()**
+
+Can't tell if someone likes you? There's an app for that.
+
+[Crushh! App](https://crushhapp.com/).
+[Rust, R.T., Cooil, B., 1994.](https://www.jstor.org/stable/3151942?seq=1#page_scan_tab_contents) Reliability Measures for Qualitative Data
+
+[Online Statistics Book](http://onlinestatbook.com/) (great Stats Book in the public domain)
+
+### [Episode 13: It's not O.K. ](https://subtext.buzzsprout.com/) 
+
 **[iTunes](https://itunes.apple.com/us/podcast/episode-13-its-not-o-k/id1386242049?i=1000423970853&mt=2)** / **[Google Play](https://play.google.com/music/m/D6iwsgjdxnlksi4gzrbxlwk3twq?t=Episode_13_Its_Not_OK-Subtext)**
+
 [Read, A.W., 1963.](https://www.jstor.org/stable/453580?casa_token=te9UZDGeRVsAAAAA:E3PoEc1msg1TO91YXvN_WQwjwVDudbGH5-j8kiAtTwHh-Tnlk-JhBNzZLz1CetV-dR0FGzMBbwh5QJL1wT6f5xicU8SXlp_2rGjIyU-CZle4wCQlszq-GQ&seq=1#page_scan_tab_contents) The first stage in the history of "OK".
+
 [Read, A.W., 1963.](https://www.jstor.org/stable/453285?casa_token=MOxRZ0UwpAEAAAAA:yQe7VhomEmy6wVmru3fH8qafvnSTB2BibP0LhWXSMc6LJPusJgAlHoYX3CR91SJ0tfhURYuujuF1GiAbnZkOGZifKXiAV2eSFb6iZ_pRF7dcsxKXmGysRQ&seq=1#page_scan_tab_contents) The second stage in the history of" OK".
+
 [Greenspan, S., 2011.](https://books.google.com/books?hl=en&lr=&id=lDEh_KvkIbwC&oi=fnd&pg=PA27&dq=11+Points+Guide+to+Hooking+Up:+Lists+and+Advice+about+First+Dates,+Hotties,+Scandals,+Pick-ups,+Threesomes,+and+Booty+Calls&ots=hUagZIv9oi&sig=J_rWQp1Bg2iokJJ3LT4K1IL9aHs#v=onepage&q=11%20Points%20Guide%20to%20Hooking%20Up%3A%20Lists%20and%20Advice%20about%20First%20Dates%2C%20Hotties%2C%20Scandals%2C%20Pick-ups%2C%20Threesomes%2C%20and%20Booty%20Calls&f=false) 11 Points Guide to Hooking Up: Lists and Advice about First Dates, Hotties, Scandals, Pick-ups, Threesomes, and Booty Calls.
+
 [Heath, M., 2018.](https://journals.linguisticsociety.org/proceedings/index.php/PLSA/article/viewFile/4350/3961) Orthography in social media: Pragmatic and prosodic interpretations of caps lock.
+
 [McSweeney, M.A., 2018.](https://rdcu.be/4fum)  The Pragmatics of Text Messaging: Making Meaning in Messages.
 
 
+### [Halloween Special: A ghost story](https://subtext.buzzsprout.com/) 
+
+**[iTunes](https://itunes.apple.com/us/podcast/halloween-special-ghost-story/id1386242049?i=1000422912620&mt=2)** / **[Google Play]()**
+
+Out of the blue, he just...vanished?
+
+[Freedman, G, Powell, D. N. Le, B., et al., 2018](https://journals.sagepub.com/doi/abs/10.1177/0265407517748791) Ghosting and destiny: Implicit theories of relationships predict beliefs about ghosting.
+
+[LeFebvre, Leah 2018](https://www.amazon.com/Impact-Social-Romantic-Relationships-Studies-ebook/dp/B073DNMX3M/ref=sr_1_1?s=books&ie=UTF8&qid=1548934376&sr=1-1&keywords=9781498544498) Ghosting as a Relationship Dissolution Strategy in the Technological Age (in *The Impact of Social Media in Modern Romantic Relationships*)
+
 ### [Episode 12: If the punctuation fits ...!](http.subtext.buzzsprout.com)
+
 **[iTunes](https://feeds.buzzsprout.com/178306.rss)** / **[Google Play](https://play.google.com/music/m/Dfm4xact5aftnnbae2yrozraqum?t=Episode_12_If_the_Punctuation_Fits-Subtext)**
 
 [99% Invisible Episode on the interrobang](https://99percentinvisible.org/episode/interrobang/)
@@ -33,6 +101,8 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 
 **[iTunes](https://itunes.apple.com/us/podcast/episode-11-2-57-texts-to-a-date/id1386242049?i=1000421132517&mt=2)** / **[Google Play](https://play.google.com/music/m/Dodxgrabmeiftbff5znenfnvos4?t=Episode_11_257_Texts_to_a_Date-Subtext)**
 
+What's the perfect number of messages to send before you decide to meet in real life? Turns out math is involved.
+
 [Ramirez, A., Sumner, E.M., Fleuriet, C. and Cole, M., 2014.](https://academic.oup.com/jcmc/article/20/1/99/4067565) When online dating partners meet offline: The effect of modality switching on relational communication between online daters.
 
 [Boilerplate messages](https://www.thecut.com/2014/10/put-less-effort-into-your-online-dating-messages.html) are about 75% as effective as customized ones.
@@ -41,12 +111,6 @@ Hosted by [Sarah Ellis](https://sarahabbottellis.com/) and [Michelle McSweeney](
 
 [Virtual Dating Assistants.](https://www.virtualdatingassistants.com/how-many-messages-does-it-take-to-set-up-a-first-date)How Many Messages Does It Take To Get Her To Meet In Person?
 
-<!--Katie: Punctuation is a feminist issue
-**[iTunes]()** / **[Google Play]()**
-### [Episode ](https://subtext.buzzsprout.com/) 
-[Bindley, K. 2018. The tyranny of the exclamation point is causing email and text anxiety: We've become addicted to exclamation points in emails and texts, and going cold turkey freaks people out. Wall Street Journal.](http://search.proquest.com/docview/2087619390/citation/86D90D2F8174D4DPQ/2)
-[Waseleski, C. 2006. Gender and the Use of Exclamation Points in Computer-Mediated Communication: An Analysis of Exclamations Posted to Two Electronic Discussion Lists. Journal of Computer-Mediated Communication](http://onlinelibrary.wiley.com/doi/10.1111/j.1083-6101.2006.00305.x/abstract)
--->
 
 ### [Episode 10: A Quirky way to Solve Dating](https://www.buzzsprout.com/admin/episodes/807521-episode-10-a-quirky-way-to-solve-dating)
 
@@ -74,6 +138,8 @@ Natasha Aponte set up an elaborate date with dozens -- maybe hundreds -- of men.
 
 [Bruch, E.E. and Newman, M.E.J., 2018.](http://advances.sciencemag.org/content/4/8/eaap9815)
  Aspirational pursuit of mates in online dating markets.
+ 
+ [Timmermans, E. and De Caluwé, E. 2017. Development and validation of the Tinder Motives Scale (TMS)](http://www.sciencedirect.com/science/article/pii/S0747563217300286) *this article discusses the Tinder matching algorithm and motivations for use*
 
 
 ### [Episode 8: Haha, So Insecure](https://subtext.buzzsprout.com/)
